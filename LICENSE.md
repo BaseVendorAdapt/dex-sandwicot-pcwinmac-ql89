@@ -1,4 +1,4 @@
-# 
+# Instantané dex sandwiched bot extensions pour Mac OS | Ultime dex sandwiched bot extensions pour PC Windows. Avec audits de sécurité et flux de prix en temps réel — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
